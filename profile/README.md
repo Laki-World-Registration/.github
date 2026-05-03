@@ -1,7 +1,7 @@
 # Laki World регистрация: полное руководство для новых игроков
 
 <p align="center">
-  <a href="https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit"
+  <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit"
      style="display:inline-block; padding:12px 28px; background:#e63946; color:#fff; text-decoration:none; font-weight:700; border-radius:6px; font-size:16px;">
     🎰 Зарегистрироваться на Laki World
   </a>
@@ -31,7 +31,7 @@
 
 **Шаг 1 →** Откройте официальный сайт
 
-Перейдите по ссылке: [лаки ворлд официальный регистрация](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+Перейдите по ссылке: [лаки ворлд официальный регистрация](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 **Шаг 2 →** Нажмите «Регистрация»
 
@@ -62,7 +62,7 @@
 
 **Регистрация на laki world** через телефон автоматически привязывает аккаунт к номеру. В дальнейшем **laki world вход** можно выполнять без пароля — по SMS-коду.
 
-> 👉 [Зарегистрироваться через телефон](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+> 👉 [Зарегистрироваться через телефон](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 ---
 
@@ -114,7 +114,7 @@ iOS     → App Store
 **Программа лояльности**
 Каждая ставка приносит баллы, которые конвертируются в реальные деньги или фриспины. Высокий уровень программы открывает VIP-привилегии: персональный менеджер, закрытые турниры, увеличенные лимиты на **laki world вывод средств**.
 
-> 👉 [Получить приветственный бонус](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+> 👉 [Получить приветственный бонус](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 ---
 
@@ -136,7 +136,7 @@ iOS     → App Store
 
 Если **laki world официальный сайт** временно заблокирован провайдером, воспользуйтесь **лаки ворлд зеркало** — резервным адресом с идентичным функционалом.
 
-> 👉 [Актуальное зеркало — лаки ворлд регистрация сегодня](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+> 👉 [Актуальное зеркало — лаки ворлд регистрация сегодня](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 Данные аккаунта полностью сохраняются. **Лаки ворлд зеркало** использует те же логин и пароль — повторная **регистрация на лаки ворлд** не нужна.
 
@@ -162,7 +162,7 @@ iOS     → App Store
 ---
 
 <p align="center">
-  <a href="https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit"
+  <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit"
      style="display:inline-block; padding:12px 28px; background:#e63946; color:#fff; text-decoration:none; font-weight:700; border-radius:6px; font-size:15px;">
     ✅ Регистрация на сайте Laki World — начать сейчас
   </a>
